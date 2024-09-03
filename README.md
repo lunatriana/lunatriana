@@ -1,7 +1,8 @@
-![spring through the window](https://github.com/user-attachments/assets/f2f6d75f-3c23-4656-9956-ea31f1c7c7da) 
+![spring window](https://github.com/user-attachments/assets/22049672-9ea5-4f81-8f04-c2ca7459fa8a)
 
 <h1 align="center">  🌸Hello! Welcome to My Page🌸
 
+## About me🪁
 #### I'm Luna, from Indonesia. I'm a student currently exploring the internet world💻. I'm an ENFP personality and a potterhead👓. Thanks for visiting and I'd like to connect with you!
 
 ## Get in touch👋
